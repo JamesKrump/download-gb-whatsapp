@@ -1,5 +1,7 @@
 # download-gb-whatsapp
 
+<img src="https://github.com/JamesKrump/download-gb-whatsapp/blob/main/gb.png"/>
+
 ***[Download GB WhatsApp Latest Version 2024](https://bit.ly/48oSaYy)***
 
 Download GB WhatsApp provides a suite of advanced features that cater to a broad range of user needs. From enhanced group controls and extended statuses to a rich selection of themes and robust security measures, the app offers more than just basic messaging. While the features are appealing, it is important to consider the security implications and lack of official support. Users should evaluate these factors to make an informed choice about using GB WhatsApp.
